@@ -5,7 +5,7 @@
 - 📫 How to reach me -Gmail adarshpatel9329@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-- 📱 9329287102
+- 
 - 
 - 
 
